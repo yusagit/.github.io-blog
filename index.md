@@ -5,7 +5,7 @@
 流派：三島流喧嘩空手
 必殺技：超ぱちき、風神拳、雷神拳、金剛落とし
 
-![HeihachiMishima](https://www.4gamer.net/games/238/G023803/20150122120/screenshot.html?num=004)
+![HeihachiMishima](https://static.wikia.nocookie.net/tekken7fr/images/1/1e/Heihachi_tekken7.jpg/revision/latest?cb=20161118063251&path-prefix=ja)
 
 名前：三島和八
 流派：三島流喧嘩空手
